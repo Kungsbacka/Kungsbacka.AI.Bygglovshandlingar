@@ -1,0 +1,1 @@
+# Kungsbacka.AI.Bygglovshandlingar
